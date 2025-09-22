@@ -9,7 +9,7 @@ Dec. 2024: </br>
 - Tried to figure stuff out through outside coding (went nowhere if you couldn't tell) </br>
 
 Jan. 2025: Model section </br>
-Feb. 2025: Final (for school) </br>
+Feb. 2025: Project due (for school) & school competition </br>
 Mar. 2025: NHD Regionals (1st place) </br>
 Apr. 2025: NHD States (1st place, qualified for nationals in Washington DC) </br>
 Jun. 2025: NHD Nationals </br>
